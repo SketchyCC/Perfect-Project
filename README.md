@@ -3,6 +3,7 @@
 
 Bai lives in an empty, white room, and wants to decorate it to make it look perfect, and to fend off her anxieties, materialised as cocoons and webs.
 
+Download here: https://sketchycc.itch.io/perfect
 
 
 Walkthrough:
